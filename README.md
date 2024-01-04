@@ -24,7 +24,7 @@ This is a must see city. It is closest to Irvine, and during the off peak season
 
 ## Newport Beach
 
-- **Corona Del Mar:** This is the nicest section of Newport Beach. Some shopping and dining, but the beach area is gorgeous. ([Google Map](https://maps.app.goo.gl/D6gyi7MHHjcatggL6))
+- **Corona Del Mar:** This is the wealthiest section of Newport Beach. Some shopping and dining, but the beach area is gorgeous. ([Google Map](https://maps.app.goo.gl/D6gyi7MHHjcatggL6))
 - **Balboa Island:** This is a small island with a lot of compact houses. It is cool to walk around the perimeter and check out the water. They have a small town in the center. Not the most exciting place ever but worth a drive through it on your way to the peninsula ferry if you are coming from Corona Del Mar. You can skip this place and go to Fashion Island instead, then head over to Balboa Peninsula from the main highway instead of using the ferry. ([Google Map](https://maps.app.goo.gl/B8EcZcq9Wjcvb6Dv8))
 - **Balboa Peninsula:** This is an iconic area in Newport Beach. You can the ferry in your car from Balboa Island for cheap, it is a very short ride and inexpensive. There is a boardwalk and several beaches, bars, shopping, and restaurants.
 I recommend checking out the areas by each pier and Lido Marina Village. If you like sushi Lido Marina Village has a [Nobu](https://noburestaurants.com/newportbeach/home) location (but expect to pay a few hundred dollars or more on dinner lol)
