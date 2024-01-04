@@ -36,7 +36,7 @@ I recommend checking out the areas by each pier and Lido Marina Village. If you 
 
 ## Huntington Beach
 
-Huntington Beach is a historic surfing town. Check out the peir area / downtown area and Pacific City shopping mall
+Huntington Beach is a historic surfing town. Check out the pier/Main street area and Pacific City shopping mall
 
 - [Huntington Beach Pier](https://maps.app.goo.gl/jpkL4Ye3HYrKhU3z9)  
 - [Surfing Walk of Fame](https://maps.app.goo.gl/UapMzp2XaQizgQrF9)  
