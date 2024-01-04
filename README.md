@@ -2,9 +2,9 @@
 
 I recommend Laguna Beach if you only have time for one location, Newport comes second.
 
-If you split it up between two days then I recommend Laguna beach then Dana Point one day; Newport then Huntington on the other.
+If you split it up between two days then I recommend Laguna Beach then Dana Point one day; Newport then Huntington on the other.
 
-Below is ordered from most Southern to most Northern.
+Below locations are ordered from South to North.
 
 ## Dana Point
 
