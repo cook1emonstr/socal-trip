@@ -8,7 +8,7 @@ Below is ordered from most Southern to most Northern.
 
 ## Dana Point
 
-- **Dana Point Harbor:** There are some decent restaurants here, but a nice place to walk with gorgeous views. There are [sea lions](http://www.seecalifornia.com/beaches/dana-point-seals-sealions.html), a harbor, restaurants, and shopping. I recommend entering from the north and driving down [Cove Road](https://maps.app.goo.gl/2QSe9CMMbbY6tEx5A). ([Google Map](https://g.co/kgs/m3AzWSE))
+- **Dana Point Harbor:** There are some decent restaurants here, but a nice place to walk with gorgeous views. There are [sea lions](http://www.seecalifornia.com/beaches/dana-point-seals-sealions.html), a harbor, restaurants, and shopping. I recommend entering from the north and driving down [Cove Road](https://maps.app.goo.gl/2QSe9CMMbbY6tEx5A). ([Google Map](https://maps.app.goo.gl/C3HEEomwKkTuiT5G7))
 
 ## Laguna Beach
 
