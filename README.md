@@ -20,7 +20,7 @@ This is a must see city. It is closest to Irvine, and during the off peak season
 - **Main Beach:** The central beach, has a park. ([Google Map](https://maps.app.goo.gl/PPbr3d3fr889atxYA))
 - **Ocean Ave:** Great shopping area to explore. ([Google Map](https://maps.app.goo.gl/7bFDqL25tDJo5AGe8))
 - **Beach Walk:** This is a must see walk along the cliff overseeing the coastline. It features several art installations. You can start at the Hesler Park Gazebo. ([Google Map](https://maps.app.goo.gl/Dip1BQUj7YsovjXH9))
-- **Crystal Cove State Park:** A very easy hiking trail along the coastal cliff. Drive here from downtown Laguna to get a great view from Pacific Coast Highway. ([Google Map](https://maps.app.goo.gl/Dip1BQUj7YsovjXH9))
+- **Crystal Cove State Park Vista Point:** A very easy hiking trail along the coastal cliff. Drive here from downtown Laguna to get a great view from Pacific Coast Highway. ([Google Map](https://maps.app.goo.gl/RyFavPfE2VMCeuqt6))
 
 ## Newport Beach
 
